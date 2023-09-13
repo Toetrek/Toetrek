@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Toetrek
-- 👀 I’m interested in your Mom
-- 🌱 I’m currently learning Brawl Stars
+- 👀 I’m interested in the TGM Lore
+- 🌱 I’m currently learning to cook meth
 - 💞️ I’m not looking to collaborate
 - 📫 How to reach me ... pls dont reach me
 
